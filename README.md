@@ -1,4 +1,4 @@
-#👨🏻 Sundar Bohora
+#👨🏻 'Sundar Bohora'
 
 **` Computer Science Graduate: Class of 2022`**
 
